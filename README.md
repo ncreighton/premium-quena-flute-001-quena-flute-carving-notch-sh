@@ -1,0 +1,2 @@
+# premium-quena-flute-001-quena-flute-carving-notch-sh
+Stop guessing your quena’s notch shape. The Quena Flute Carving &amp; Notch Shape Craft Studio turns your flute-making intuition into a repeatable, measurable design system — no more inconsistent tone or wasted bamboo.  This Notion template solves the core challenge of quena carving: replicating the perfect notch. It provides a structured workspace to
